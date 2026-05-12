@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MathType for PC | MathType for Windows addon with vip MathType for PC | MathType for Windows Addon | 3D-plotting + publication-quality-graphics. Featuring
 
 
 
